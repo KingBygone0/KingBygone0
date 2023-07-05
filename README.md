@@ -1,4 +1,3 @@
-# 💫 About Me:
 Isaac Nana Yaw Annor, known professionally as King Bygone, is a Ghanaian celebrity and Entertainment Blogger, freelance publicist, online journalist, social media marketer, and an event promoter and organizer<br><br>He founded Nsemwokrom.com, Ghanaianexpress.com, wedeytrend.com, mytracklab.com and news-kitchen.com, an entertainment websites and blog that primarily publishes news about Ghanaian celebrities and local news content as well. King Bygone started his own blogpot bygonegh-co right after completing high school which paved way for him to start working for to work with several Celebrities and industry players. He joined artist manager record label ‘Blue Roze Entertainment’ as a Publicist and a blogger months after setting up his blog spot.<br>
 
 
